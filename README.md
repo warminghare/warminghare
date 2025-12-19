@@ -1,5 +1,4 @@
-<div align="center"><img src="https://s5.ezgif.com/tmp/ezgif-5ff9736a6589e11c.gif"></div>
-  <div align="center"><img src="https://s8.ezgif.com/tmp/ezgif-8830c130e9de4f3c.gif"></div><br>
+
 <div align="center">
   
   [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31cry5fzinljoojtwvpqxmocos3u&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&bar_color=2b303b&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) 
