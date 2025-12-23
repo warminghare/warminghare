@@ -13,5 +13,5 @@
   <div align="center"><img src="https://media1.tenor.com/m/RgqdCjCeBOoAAAAd/%E0%B8%94%E0%B8%AB-pond.gif" width="450" height="200"></div><br>
 <div align="center">
 
-[rentry](https://rentry.co/cataclysmtick) ✦ [tree](https://colormytree.me/2025/01KBHHQ34VD4DVXSWSJJ52R9EC?page=1) ✦ [atabook](https://cruuuxxx.atabook.org/) ✦ [main acc . follow here!](https://github.com/cataclysmtick) ✦ [grab dividers & etc here](https://rentry.co/RECOMMENDEDITEMS2GRABBLOLL)
+[rentry](https://rentry.co/cataclysmtick) ✦ [tree](https://colormytree.me/2025/01KBHHQ34VD4DVXSWSJJ52R9EC?page=1) ✦ [atabook](https://cruuuxxx.atabook.org/) ✦ [main acc . follow here!](https://github.com/cataclysmtick)
 </div>
