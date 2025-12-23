@@ -4,14 +4,14 @@
   </div>
 <div align="center"> 
   
-  ![](https://komarev.com/ghpvc/?username=hoursofcooleststuff4evr&color=F6F0D7&label=tapeworms&abbreviated=true) 
+  ![](https://komarev.com/ghpvc/?username=hoursofcooleststuff4evr&color=9CAB84&label=funny&abbreviated=true) 
   </div>
 <div align="center">
 
-  I could be a sinner, ⟢ [I could be a saint.](https://spacehey.com/cruuuxxx)
+  Do you really think my hat is stupid? ⟢ [As a matter of fact, I think it is the nicest hat I've ever known.](https://spacehey.com/cruuuxxx)
   </div>
-  <div align="center"><img src="https://tenor.com/en-GB/view/banner-gif-25343999.gif"></div><br>
+  <div align="center"><img src="https://media1.tenor.com/m/RgqdCjCeBOoAAAAd/%E0%B8%94%E0%B8%AB-pond.gif" width="450" height="200"></div><br>
 <div align="center">
 
-[rentry](https://rentry.co/warminghare) ✦ [tree](https://colormytree.me/2025/01KBHHQ34VD4DVXSWSJJ52R9EC?page=1) ✦ [atabook](https://cruuuxxx.atabook.org/) ✦ [main acc](https://github.com/cataclysmtick)
+[rentry](https://rentry.co/warminghare) ✦ [tree](https://colormytree.me/2025/01KBHHQ34VD4DVXSWSJJ52R9EC?page=1) ✦ [atabook](https://cruuuxxx.atabook.org/) ✦ [main acc . follow here!](https://github.com/cataclysmtick)
 </div>
