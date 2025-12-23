@@ -10,7 +10,6 @@
 
   Do you really think my hat is stupid? ⟢ [As a matter of fact, I think it is the nicest hat I've ever known.](https://spacehey.com/cruuuxxx)
   </div>
-  <div align="center">Followed? You're TOTALLY the #1 stan-stan with me.</div>
   <div align="center"><img src="https://media1.tenor.com/m/RgqdCjCeBOoAAAAd/%E0%B8%94%E0%B8%AB-pond.gif" width="450" height="200"></div><br>
 <div align="center">
 
