@@ -5,6 +5,10 @@
   </div>
 <div align="center"> 
   
-  ![](https://komarev.com/ghpvc/?username=hoursofcooleststuff4evr&color=red&label=whatever&abbreviated=true) 
+  ![](https://komarev.com/ghpvc/?username=hoursofcooleststuff4evr&color=9F8383&label=people&abbreviated=true) 
   </div>
   <div align="center">
+
+    
+  [about me](https://rentry.co/lobbycruxxx)
+  </div>
