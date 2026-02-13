@@ -18,5 +18,8 @@
 
    <div align="center"> 𝒊nstead of feeling loved, i felt disfigured. </div>
    <div align="center"> 𝒊 never felt the same way ever again.&nbsp;&nbsp;&nbsp;ᛝ&nbsp;&nbsp;&nbsp;&nbsp;── . 🎹 </div>
+   <div align="center">
 
+   [rentry](https://rentry.co/crawlundermyskin)
+  </div>
    
