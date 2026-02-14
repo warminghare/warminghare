@@ -10,7 +10,7 @@
  
  <div align="center"> 
    
-   ![](https://komarev.com/ghpvc/?username=hoursofcooleststuff4evr&color=280905&label=cigarettes&abbreviated=true) </div> 
+   ![](https://komarev.com/ghpvc/?username=hoursofcooleststuff4evr&color=000000&label=deaths&abbreviated=true) </div> 
    
    <div align="center"><img src="https://dividers.crd.co/assets/images/gallery09/ddd7f857.gif?v=05d33f91"‪> </div><br>
 
