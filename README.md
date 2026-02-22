@@ -10,7 +10,7 @@
  
  <div align="center"> 
    
-   ![](https://komarev.com/ghpvc/?username=hoursofcooleststuff4evr&color=000000&label=deaths&abbreviated=true) </div> 
+   ![](https://komarev.com/ghpvc/?username=hoursofcooleststuff4evr&color=000000&label=deaths) </div> 
    
    <div align="center"><img src="https://dividers.crd.co/assets/images/gallery09/ddd7f857.gif?v=05d33f91"‪> </div><br>
 
@@ -20,6 +20,6 @@
    <div align="center"> 𝒊 never felt the same way ever again.&nbsp;&nbsp;&nbsp;ᛝ&nbsp;&nbsp;&nbsp;&nbsp;── . 🎹 </div>
    <div align="center">
 
-   [rentry](https://rentry.co/crawlundermyskin)
+   [rentry](https://rentry.co/crawlundermyskin) [strawpage](https://gemapradana.straw.page)
   </div>
    
