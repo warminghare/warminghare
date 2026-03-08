@@ -20,6 +20,7 @@
    <div align="center"> 𝒊 never felt the same way ever again.&nbsp;&nbsp;&nbsp;ᛝ&nbsp;&nbsp;&nbsp;&nbsp;──&nbsp;&nbsp;🎹 </div>
    <div align="center">
 
-<div align="center><"https://rentry.co/crawlundermyskin"><img width=35 alt="rentry" src="https://pix.crd.co/assets/images/gallery21/e1456f94.png?v=1466ccea" &nbsp;&nbsp; div align="center><"https://gemapradana.straw.page"><img width=35 alt="strawpage" src="https://pix.crd.co/assets/images/gallery21/c31146d4.gif?v=1466ccea" div align="center><"https://github.com/cataclysmtick"><img width=35 alt="follow me" src="https://pix.crd.co/assets/images/gallery21/7d00b857.png?v=1466ccea"></div>
+   [rentry](https://rentry.co/crawlundermyskin) [strawpage](https://gemapradana.straw.page) [follow me](https://github.com/cataclysmtick)
+  </div>
 
-   
+<!-- dont do what i think you're doing, okay??????? all credit go to ME, ME! AND I KNOW, YOU'LL BE STEALING THIS, YOU YETI! -->
